@@ -1,0 +1,2 @@
+# sam-ngoc-linh
+Sâm Ngọc Linh là một trong những loại dược liệu cực quý của Việt Nam, với số lượng saponin cao hơn nhiều lần so với các loại sâm khác trên thế giới. Tuy nhiên, hiện nay chỉ có rất ít tổ chức, đơn vị có khả năng tiếp cận với vùng trồng sâm chính thức được Nhà nước công nhận, từ đó ứng dụng công nghệ bảo tồn, nuôi trồng, phát triển cây thuốc quý này, trong đó có Công ty CP Thương mại – Dược – Sâm Ngọc Linh Quảng Nam.
